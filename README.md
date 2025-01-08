@@ -11,7 +11,7 @@
 - 📧 **Email**: [saimuralidhar2004@gmail.com](mailto:saimuralidhar2004@gmail.com)
 
 ### ⚡ Fun Fact
-**I love to explore latest trends and advancements in the technology and stay updated with the world. This always make people to call me a techy!** 
+   -    **I love to explore latest trends and advancements in the technology and stay updated with the world. This always make people to call me a techy!** 
 
 
 <h3 align="left">Connect with me:</h3>
